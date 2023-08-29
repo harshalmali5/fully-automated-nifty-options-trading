@@ -7,9 +7,6 @@ As the sole developer of this system, I will have the flexibility to dedicate my
 
 If you're interested in this project, I would love to talk more. You can contact me at:
 
-- Email: kodakandlasrikar99@gmail.com
-- Phone no: (+91) 9176462946
-- LinkedIn: [https://www.linkedin.com/in/srikar-kodakandla/]
 
 Let's work together to change trading.
 
